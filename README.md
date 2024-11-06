@@ -156,7 +156,7 @@
 	<li>30 Days, Risk Free, Money Back Guarantee…</li>
 </ul>
 <h3><span style="color: #ff6600;"><strong>AIXMASTORE OTO 6: AIXMASTORE Reseller</strong></span></h3>
-<p><strong><img class="emoji" role="img" draggable="false" src="https://s.w.org/images/core/emoji/15.0.3/svg/2705.svg" alt="✅" /> AIXMASTORE Reseller <span style="color: #ff0000;">[$20 Discount]</span></strong><br />
+<p><strong>AIXMASTORE Reseller <span style="color: #ff0000;">[$20 Discount]</span></strong><br />
 <a href="https://7review-oto.us/AIxmastore-Coupon" target="_blank" rel="nofollow noopener noreferrer"><strong>https://getaixmastore.com/reseller/</strong></a></p>
 <p>Would You Like To Get Access To Resell AIXMASTORE &amp; Keep 100% Profit From Your Sales?</p>
 <p>Get Access To All Our Sales Materials From Salespages To VSLs Without Any Extra Charge.</p>
